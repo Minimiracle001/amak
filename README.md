@@ -1,0 +1,2 @@
+# amak
+Welcome ppl
